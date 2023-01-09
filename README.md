@@ -1,5 +1,5 @@
 
-# `@𝐀𝐥𝐞.𝐢𝐳𝐧
+# @𝐀𝐥𝐞.𝐢𝐳𝐧
 
 ### `—◉ 👑 DUDAS SOBRE EL BOT?, CONTACTAME 👑`
 <a href="http://wa.me/+51914865141" target="blank"><img src="https://img.shields.io/badge/Ale-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" /></a>
